@@ -1,1 +1,1 @@
-![Frame_10](https://github.com/modernlulw/modernlulw/assets/139861701/6e50e13f-e1a9-4a3c-b6a9-9e189831d066)
+![Frame_2](https://github.com/modernlulw/modernlulw/assets/139861701/a3de8901-cf55-4c80-b408-694122d8b57f)
